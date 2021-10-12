@@ -20,4 +20,8 @@ Stuff...
 Hello Alex
 Hello Tuong
 
-Hello
+##Chapter China 
+What is this game okay buddy hello Tuong how are you today?
+This is spartaaaaaaaa
+NO IT ISN"TTTTTTTTfdfdf
+IT ISSS
