@@ -20,3 +20,6 @@ Stuff...
 Hello Alex
 Hello Tuong
 How are you Tuong TUong 
+
+##Chapter China 
+What is this game okay buddy hello Tuong how are you today?
